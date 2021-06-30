@@ -6,6 +6,7 @@ Sugar - 3.5 tspoon
 butter - 1/2 cup 
 Egg yolk of 2 eggs
 Cocoa powder - 1.5 cup
+Milk - 2 cup
 Vanilla essence - 2 spoon 
 Backing powder - 1 spoon
 Backing Soda -1 or 2 spoon
